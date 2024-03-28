@@ -1,4 +1,4 @@
 - Uhhh...... not sure how you got here...
 - but you did!
-- I am a silly man who makes silly things and also plays videogames sometimes
+- I am a man who makes things on the best Java IDE ever, greenfoot, and also plays videogames sometimes
 - I don't have any announcments right now
